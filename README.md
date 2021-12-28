@@ -1,4 +1,4 @@
-I curruntly Working on this project & Commplet it very soon
+I currently Working on this project & Complete it very soon
 
 
 
